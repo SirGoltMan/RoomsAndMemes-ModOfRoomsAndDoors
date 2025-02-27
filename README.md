@@ -1,5 +1,3 @@
-
-https://github.com/user-attachments/assets/9d2be2e3-6e02-4721-8f6d-d11917906936
 > # WARNING!!! 
 > ### Available to players who have reached A-100 in Rooms & Doors!
 
